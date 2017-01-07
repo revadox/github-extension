@@ -15,7 +15,7 @@ here we goooooooooooooooooooooooo
 now,you can see github icon on crome toolbar beside URL box
 
 
-if any query mail me at vdbazinga79@gmail.com enjoy this service
+if any query mail me at vdbazinga79@gmail.com enjoy this service for free
 
 
 
